@@ -1,1 +1,0 @@
-# beauty-ness-demo
